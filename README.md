@@ -1,0 +1,1 @@
+# triagem-pronto-socorro
